@@ -2,8 +2,7 @@
 
 ---
 
-# May I be the starlight shadow,Silent lingering by your window,although it happened that spring slipped away before my arrival.
-
+# 愿为星影，长伴芸窗。
 
 <!--
 愿为星影，长伴芸窗。
